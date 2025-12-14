@@ -6,5 +6,4 @@
 🌱 Continuously learning and improving my skills through practice and projects  
 
 📌 This GitHub showcases my learning journey and selected projects  
-😄 Pronouns: she/her
 
